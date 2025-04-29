@@ -32,4 +32,4 @@ With an **entrepreneurial mindset** and a deep sense of ownership, I focus on bu
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/jcastiarena)  
 - 💻 [GitHub](https://github.com/jcastiarena)  
-- 📩 Feel free to reach out if you're hiring or just want to connect!
+- 📩 Feel free to reach out if you want to connect!
